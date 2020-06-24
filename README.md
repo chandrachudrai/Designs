@@ -1,2 +1,2 @@
 # Designs
-Graphic designs- Flex and Posters
+Graphic designs made for NSS BIT Mesra
